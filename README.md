@@ -1,0 +1,2 @@
+# portfoliya
+ bu mening portfoliyam
